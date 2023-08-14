@@ -1,7 +1,7 @@
 ----------------------------------------------------------------------
 Thanks To :                                
 - Allah Swt          
-- Orang Tua        
+- My Parents       
 - ZeeoneOfc        
 - Penyedia Apikey
 - Creator Bot Lainnya
